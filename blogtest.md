@@ -3,10 +3,10 @@
 ##Examples of Shoebox Designs:
 
 ![Redberry Shoebox](http://carlgdes3003.files.wordpress.com/2014/10/63d4b-1412557359111.jpg?w=924&h=578)
-*Redberry. Designed by Anagrama.
+*Redberry. Designed by Anagrama.*
 
 ![Shoebox & Bag](http://carlgdes3003.files.wordpress.com/2014/10/05a0b-10.jpg?w=924&h=578)
-*Shoebox and bag.
+*Shoebox and bag.*
 
 ##My Design
 
